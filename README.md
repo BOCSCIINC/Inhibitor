@@ -1,0 +1,2 @@
+# Inhibitor
+BOC Sciences is a brand of BOCSCI Inc. We leverage our wide spectrum of business in the fields of development, manufacturing, marketing, and distribution to help you make best-informed decisions tailored to your evolving needs for premium chemicals. Our complete suite of CRO services spans the entire molecule development pipeline including contract research for target identification, building blocks, compound synthesis, biochemical and cellular analysis, preclinical animal tests, and clinical studies.  Morea at www:bocsci.com
